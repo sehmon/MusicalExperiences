@@ -17,15 +17,16 @@
 - McJenkins: IMAN Benefit
 - Canvas Primer #9 @ CANVAS
 - ~~Soulja Boy, WARHOL.SS @ Double Door~~
-- Rae Sremmurd., Baauer: A&O Ball
+- Rae Sremmurd, Baauer: A&O Ball
 - Anderson .Paak, Dial Up, Smino, Monte Booker, Schoolboy Q @ Dillo Day
 
 ###Summer 2016 (New York)
 - Denzel Curry, G Herbo, Dave East, Lil Dicky, Lil Yachty, Desiigner: XXL Freshman Show @ Playstation Theatre
 - Asumaya, Fan Letters, Jonah Parzen-Johnson @ Trans-Pecos
 - D.R.A.M. @ some random club lol (San Francisco)
+- Lil Yachty: Just Keep Swimming Short Film @ Regal Theatre
 - Wifisfuneral, XXXtentacion, Ski Mask The Slump God, Pollari, Danny Towers @ Webster Hall
-- Tyler the Creator, Flying Lotus, The Internet, Soulection, Earl Sweatshirt:AFROPUNK Brooklyn @ Commodore Barry Park
+- Tyler the Creator, Flying Lotus, The Internet, Soulection, Earl Sweatshirt: AFROPUNK Brooklyn @ Commodore Barry Park
 - Kanye West: Saint Pablo Tour @ Madison Square Garden
 
 ###Fall 2016 (Chicago)
