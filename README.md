@@ -43,3 +43,4 @@
 ### Spring 2017
 - Aminé, Jeremih @ The Rivieara 
 - Skepta @ Concord Music Hall
+- Desiigner @ The Vic Theatre
