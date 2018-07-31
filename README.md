@@ -44,3 +44,22 @@
 - Aminé, Jeremih @ The Rivieara 
 - Skepta @ Concord Music Hall
 - Desiigner @ The Vic Theatre
+
+### Summer 2018
+- 
+
+### Fall 2018 (London)
+- H09909: Camden
+- Re:imagine: Kanye West's My Beautiful Dark Twisted Fantasy (lmaooooo)
+- Syd, IAMDDB, Buddy: RBMA PATHS UNKNOWN LIVE @ East Wintergarden
+- SELFRIDGES X AWGE
+- Michelle Lamy @ Dover Street Market
+
+### Winter 2019
+
+### Spring 2019
+- DIAL UP, NombreKari, Jared Leto, 2MYGRAVE: UU Chicago @ Chitown Futbol
+
+### Summer 2019 (San Francisco)
+- Playboi Carti: The Warfield
+- ~Lil Uzi Vert~ @ The Grand Nightclub
